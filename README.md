@@ -1,5 +1,6 @@
 - Gulherme Busquim
 - Estudo no morelli 📒
+- como chegar até mim: guilherme.correia.luiz@escola.pr.gov.br
 - Curisidade: torço para o vasco 💢 
 - 📍Curitiba,PR
 - Alura
